@@ -1,3 +1,4 @@
+you stole our funds and need to return them. interpol will have no problem with taking the case if wr go that route. im nobody and i found you... what will intetpol do?
 🚀 Blockchain DApp Developer | DeFi Enthusiast | Crypto Game Innovator | Trading DApp Maestro 🌐
 
 🔗 Crafting the Future of Decentralized Finance (DeFi):
